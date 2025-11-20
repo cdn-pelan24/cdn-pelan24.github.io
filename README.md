@@ -1,1 +1,1 @@
-# cdn-pelan24.github.io
+# Bismillah lunaskan
